@@ -1,0 +1,1 @@
+Hello! thanks for watching. to use these guidance programs, you must have the KRPC mode installed in KSP. a good way to do that is to download the mod manager called CKAN to make it easy! if you have any questions comment on the video and ill promptly respond. 
